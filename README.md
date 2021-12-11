@@ -1,2 +1,5 @@
 # botwa-v2
-hyy anj
+cuma repost ja Ng an di bully lah stah
+# Thnk to
+all creator bot 
+whatsapp.web
